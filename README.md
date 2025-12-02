@@ -1,16 +1,14 @@
-## Hi there 👋
+- -**Rafael rocha monteiro** 
+Colegio Civico Militar Manoel Ribas
 
-<!--
-**rafaelrm2011/rafaelrm2011** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+-  🇧🇷Rafael.Rocha.Ronteiro@escola.pr.gov.br
+- 14 anos 13/12/2011
+- sou estudante do 9°
 
-Here are some ideas to get you started:
+  https://media1.tenor.com/m/Z3MLscFkWMgAAAAd/goat.gif
+https://media1.tenor.com/m/t3J8Mxso05AAAAAd/theburntpeanut-bungulator.gif
+https://media1.tenor.com/m/dkWNqydxCBgAAAAd/pig-slap.gif
+https://media1.tenor.com/m/VdixkA4ki9IAAAAd/aizen.gif
+https://media1.tenor.com/m/kkTunIlYQx8AAAAd/dance-golden-retriever.gif
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
